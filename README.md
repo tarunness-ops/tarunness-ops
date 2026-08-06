@@ -1,4 +1,4 @@
-![Power to the People](https://medium.com/@yishan/solarpunk-art-contest-2021-winners-d935df357c84)
+![Power to the People](1_wwtfSLRQtqEH1Zfbl288KA.webp)
   
 <samp>
   
